@@ -69,7 +69,7 @@
 
 
 
-Discord: xaothebao_xoxo 
+xaothebao_xoxo 
 
 
  
